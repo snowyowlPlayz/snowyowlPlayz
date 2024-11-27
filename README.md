@@ -1,3 +1,2 @@
 I'm SnowyOwl.
-The DarkSide.
-I love owls.
+I love OWLS!
